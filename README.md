@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @eshiko-Hack
+- 👀 I’m interested in fiesta online
+- 🌱 I’m currently learning hack or gaming
+- 💞️ I’m looking for friends
+- 📫 How to reach me discord : @♤♤Mons♧♧#5301
